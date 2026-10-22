@@ -58,4 +58,4 @@ Por eso repito siempre:
 ## Hablemos
 
 ¿Ya tienes tu producto desarrollado y quieres validar su go-to-market o su
-product-market fit? Escríbeme por DM en [LinkedIn](https://www.linkedin.com/in/TU-USUARIO).
+product-market fit? Escríbeme por DM en [LinkedIn](https://www.linkedin.com/in/cristobal-oyarzun-astete-holdordie/).
